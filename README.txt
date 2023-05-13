@@ -1,0 +1,1 @@
+https://kakasatoshi.github.io/mycv/
